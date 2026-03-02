@@ -20,9 +20,12 @@ ${{\color{gray}{\textsf{Wanna request? Sign my ata or whisp}}}}$
 
 <img width="450" height="450" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Untitled12_20260215225131.png" />
 
-★ ***Note —*** Janka when bro
+<img width="450" height="450" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Untitled147_20260106001158.png" />
+
+
+★ ***Note —*** Me and my Janka
 ***
-▷ *Requested by* — none, self indulgent
+▷ *Requested by* — none, both self indulgent
 
 
 <img width="700" height="250" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_1722181283053187.gif" />
