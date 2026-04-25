@@ -5,10 +5,10 @@
 <img width="350" height="350" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Untitled25_20260302144119.png" />
 
 
-<img width="700" height="250" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_1722181283053187.gif" />
+<img width="300" height="50" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_1722181283053187.gif" />
 
 
-<img width="700" height="250" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_372999439483077.jpg" />
+<img width="300" height="50" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_372999439483077.jpg" />
 
 
 ${{\color{gray}{\textsf{An artdump}}}}$ 
@@ -16,7 +16,7 @@ ${{\color{gray}{\textsf{An artdump}}}}$
 ${{\color{gray}{\textsf{Wanna request? Sign my ata or whisp}}}}$
 
 
-<img width="700" height="250" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_372999439483077.jpg" />
+<img width="300" height="50" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_372999439483077.jpg" />
 
 <img width="450" height="450" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Untitled12_20260215225131.png" />
 
@@ -28,7 +28,7 @@ ${{\color{gray}{\textsf{Wanna request? Sign my ata or whisp}}}}$
 ▷ *Requested by* — none, both self indulgent
 
 
-<img width="700" height="250" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_1722181283053187.gif" />
+<img width="300" height="50" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_1722181283053187.gif" />
 
 
 
@@ -39,7 +39,7 @@ ${{\color{gray}{\textsf{Wanna request? Sign my ata or whisp}}}}$
 ▷ *Requested by* — @GAMBLEGHOST on **github**
 
 
-<img width="700" height="250" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_1722181283053187.gif" />
+<img width="300" height="50" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_1722181283053187.gif" />
 
 
 
@@ -49,7 +49,7 @@ ${{\color{gray}{\textsf{Wanna request? Sign my ata or whisp}}}}$
 ***
 ▷ *Requested by* — @sallyfaceirl on **github**
 
-<img width="700" height="250" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_1722181283053187.gif" />
+<img width="300" height="50" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_1722181283053187.gif" />
 
 
 <img width="450" height="450" alt="c6faf46e_original" src="https://file.garden/aUdioCvDzBVqDEbf/stars%20pretty%20basketbunny.webp" />
@@ -59,7 +59,7 @@ ${{\color{gray}{\textsf{Wanna request? Sign my ata or whisp}}}}$
 ▷ *Requested by* — @anonymous on **atabook**
 
 
-<img width="700" height="250" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_1722181283053187.gif" />
+<img width="300" height="50" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_1722181283053187.gif" />
 
 
 <img width="450" height="450" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Untitled43_20260323170221.png" />
@@ -71,6 +71,19 @@ ${{\color{gray}{\textsf{Wanna request? Sign my ata or whisp}}}}$
 ★ ***Note —*** My sona w my irl hair and Shelly sona !!
 ***
 ▷ *Both self indulgent .*
+
+<img width="300" height="50" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_1722181283053187.gif" />
+
+
+<img width="450" height="450" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Untitled47_20260328011216.png" />
+
+<img width="450" height="450" alt="c6faf46e_original" src="https://file.garden/aSPtuZ-Qjze7pe-Y/Untitled139_20251227141947.png" />
+
+★ ***Note —*** The two bunnies awweeeee how cute
+***
+▷ *Both self indulgent .*
+
+
 
 
 
